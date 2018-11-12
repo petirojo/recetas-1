@@ -1,5 +1,5 @@
-Tortilla original:
-==================
+Tortilla sin cebolla:
+=====================
 
 
 Los pocos ingredientes necesarios son la clave de su éxito y para hacer una buena tortilla para 4 personas se necesitarán solo cinco:
